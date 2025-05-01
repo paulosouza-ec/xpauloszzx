@@ -9,7 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://tenor.com/view/cafe-gif-836031395464358272"  />
+<img align="right" height="150" src="https://i.imgflip.com/9rs0is.gif" alt="GIF de café" />
 
 ###
 
